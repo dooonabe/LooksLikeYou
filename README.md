@@ -1,2 +1,2 @@
 # LooksLikeYou
-Dose dooonabe looks like you? Which photo?
+Dose doonabae looks like you? Which photo?
